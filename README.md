@@ -4,4 +4,4 @@ Hey there!
  - 👓 I cee sharp professionally
  - 📜 Currently finishing my CS bachelor's degree
  - 💩 Much sad about ads, the metaverse and finding the perfect cloud provider for _me_
- - ✨ Many smiles about Clouds (the sky kind), geeking about IMAX and building Cool Things
+ - ✨ Many funs about Clouds (the sky kind), creative Photography and Editing, and building Cool Things

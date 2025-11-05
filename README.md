@@ -1,1 +1,1 @@
-Find my code on my [Gitea](https://code.giller.dev).
+Find most of my code [here](https://code.giller.dev).
